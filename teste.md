@@ -1,1 +1,2 @@
-Teste 2
+Aceita
+Pelo amor
